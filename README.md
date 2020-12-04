@@ -15,6 +15,14 @@ For our beautiful wedding
 - [格萊天漾](http://www.g-skyview.com/wedding_list_1.php)
 ---
 - [大直典華](http://travelerliv.com/blog/post/227537285)
+---
+- [維多利亞](http://www.grandvictoria.com.tw/wedding/activity.php)
+---
+- [翡麗詩](https://www.felicite-wed.com/tw)
+---
+- [凱達](https://www.caesarmetro.com/zh-tw/Banquet)
+---
+- [台北君悅](https://www.hyatt.com/zh-HK/hotel/taiwan/grand-hyatt-taipei/taigh/special-events)
 
 | 方案     | 價格         | 備註                                                                               |
 | -------- | ------------ | ---------------------------------------------------------------------------------- |
