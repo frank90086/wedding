@@ -43,6 +43,7 @@ For our beautiful wedding
 - [蘿亞結婚精品](https://www.taipeiroyalwed.tw/portfolio/婚紗禮服款式【裸紗】/)
 - [Le Chic Bridal](https://www.facebook.com/LeChicBridal/?__tn__=-UC*F)
 - [＊第九大道](https://no9-wedding.com/display/aman/)
+- [Ginger.C](https://gingercbridal.com)
 
 ### 參考
 
