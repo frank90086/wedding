@@ -69,6 +69,8 @@ For our beautiful wedding
 - [Chaumet](https://www.chaumet.com/cht)
 - [林曉同](https://www.lin-shiao-tung.com/)
 
+---
+
 ## 婚紗 (＊：Overseas) (@：Pricing)
 
 - [＊ @ Mr.Hello 婚禮事務所](https://mr-hello.com/overseas-price?fbclid=IwAR23vpQJ-7xPvemlAg_yGLetXlIgil52XRvWah_S9fqLeFr5JJjb7CaOnws)
@@ -77,6 +79,19 @@ For our beautiful wedding
 - [＊第九大道](https://no9-wedding.com/display/aman/)
 - [Ginger.C](https://gingercbridal.com)
 - [布拉格戀人婚攝工作室](https://www.pragueloverswedding.com)
+
+---
+
+## 喜餅
+
+- [Chochoco](http://www.chochocowedding.com/index.php?gclid=Cj0KCQiA0rSABhDlARIsAJtjfCcrs9ouhCL1_HUWM_AeSILrri7VBqgBn1KX10QPU5w0Zfdy14otXa4aAlh0EALw_wcB#reservation)
+- [七見櫻堂]](https://nksdchoco.oddle.me/zh_TW/)
+- [世唯](http://www.sweetway.com.tw)
+- [ooh la love](https://oohlalove.com.tw)
+- [波波諾諾](https://bobonono.tw)
+- [小茶栽堂](https://www.zeniqueshop.net/Templates/Model1/index.jsp)
+
+---
 
 ### 參考
 
