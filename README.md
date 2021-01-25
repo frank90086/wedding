@@ -85,7 +85,7 @@ For our beautiful wedding
 ## 喜餅
 
 - [Chochoco](http://www.chochocowedding.com/index.php?gclid=Cj0KCQiA0rSABhDlARIsAJtjfCcrs9ouhCL1_HUWM_AeSILrri7VBqgBn1KX10QPU5w0Zfdy14otXa4aAlh0EALw_wcB#reservation)
-- [七見櫻堂]](https://nksdchoco.oddle.me/zh_TW/)
+- [七見櫻堂](https://nksdchoco.oddle.me/zh_TW/)
 - [世唯](http://www.sweetway.com.tw)
 - [ooh la love](https://oohlalove.com.tw)
 - [波波諾諾](https://bobonono.tw)
